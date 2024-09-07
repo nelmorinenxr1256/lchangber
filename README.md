@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on discord
 - 📫 How to reach me? You can contact via all of my social media i have used
 - 😄 Pronouns: They/Them
-- ⚡ Fun fact: if im actually a girl, what will you do?
+- ⚡ Fun fact: skibidi toilet is brainrot
+  
 
 <!---
 lchangber/lchangber is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
