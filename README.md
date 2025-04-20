@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lchangber
+- 👋 Hi, I’m Delta:D!
 - 👀 I’m interested in drawing, sleeping and eating
 - 🌱 I’m currently learning maths, english and more
 - 💞️ I’m looking to collaborate on discord
